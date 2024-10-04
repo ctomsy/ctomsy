@@ -1,16 +1,11 @@
-## Hi there 👋
+<p align="center">
+  <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/33bb0c3f-b0ea-43ad-88f9-a7804fc4c0c9/dh7jsps-e5731e28-890b-4e8e-a375-520563eb52a5.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzMzYmIwYzNmLWIwZWEtNDNhZC04OGY5LWE3ODA0ZmM0YzBjOVwvZGg3anNwcy1lNTczMWUyOC04OTBiLTRlOGUtYTM3NS01MjA1NjNlYjUyYTUucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.wkMK_AtmUMTjlWU-u4pTcCkuZKmhMtwzdZhuwQJt_bo">
+  <br><strong>tommy</strong> (<a href="https://pronouns.cc/@finalherrscher">+</a>) he/they bodily 20 <a href="https://yourtommy.straw.page">extended info</a>
+  <br>
+<br>hi im tommy..you can call us birds too..we are a medically recognized osdd system! ^O^
+<br> you can whisper to interact i usually am in personal chat + offtab. </a>
+<br><strong>interests; </strong> dsmp, signalis, hi3, psychology & more </a>
 
-<!--
-**ctomsy/ctomsy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center"><br><strong>dni; </strong> minors please try to limit interaction, 
+   <br> ws & dteam supporters, proshippers dont interact ^_^ 
+   <strong>i hide freely.</strong></a>
