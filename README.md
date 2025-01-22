@@ -7,5 +7,5 @@
 <br><strong>interests; </strong> dsmp, signalis, hi3, psychology & more </a>
 
 <p align="center"><br><strong>dni; </strong> minors please try to limit interaction, 
-   <br> ws & dteam supporters, proshippers dont interact ^_^ 
+   <br> ws & dteam supporters, pro-endo/endos, proship/profic dont interact ^_^ 
    <strong>i hide freely.</strong></a>
