@@ -4,7 +4,7 @@
   <br>
 <br> we get a little shy talking to pony town people but you can try to interact, otherwise we're generally pretty extroverted lol.
 <br> you can whisper to interact i usually am in personal chat + offtab. </a>
-<br><strong>interests; </strong> dsmp, signalis, hi3, psychology & more </a>
+<br><strong>interests; </strong> dsmp, karmaland 5, qsmp, signalis, hi3, psychology & more </a>
 
 <p align="center"><br><strong>dni; </strong> minors please try to limit interaction, 
    <br> ws & dteam supporters, pro-endo/endos, proship/profic dont interact ^_^ 
