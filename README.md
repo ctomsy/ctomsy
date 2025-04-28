@@ -1,4 +1,4 @@
-<img src="https://file.garden/aA_22xfQFxGH1wX1/YESSSSSSSSSSSSSS.gif" align="left" style="width: 400px;">
+<img src="https://file.garden/aA_22xfQFxGH1wX1/YESSSSSSSSSSSSSS.gif" align="left" style="width: 370px;">
 <br><br><br>
 <p align="center">
 <img src="https://file.garden/aA_22xfQFxGH1wX1/image_2025-04-28_175508117.png">
